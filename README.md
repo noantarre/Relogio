@@ -1,7 +1,4 @@
 
-embarque digital
-
-![image](https://github.com/noantarre/Relogio/assets/74929513/c99fe21f-cb28-4ed5-8cfa-97bcb1961e40)
 
 
 
